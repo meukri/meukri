@@ -3,7 +3,7 @@
 
 <p style="text-align: center;"><img src="https://i.pinimg.com/736x/ca/5f/4c/ca5f4c4577e3f7c51afbdd16e7ad8172.jpg" class="fr-fic fr-dib" width="195" height="189.156"></p>
 
-<p style="text-align: center;">kylo / calliope (he/she/it) transmasculine genderfluid</p>
+<p style="text-align: center;">kylo / meu (he/she/it) transmasculine genderfluid</p>
 
 <p style="text-align: center;">u can usually find me in the homestuck area chilling ^u^ i love talking to people, i dont bite!! (seriously pls talk to me)</p>
 
